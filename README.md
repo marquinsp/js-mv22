@@ -4,4 +4,4 @@
 
 Meu nome é Marcus Vinícius
 
-![lucigol](https://tenor.com/pt-BR/view/spfc-luciano-spfc-luciano-gol-gif-19046434)https://tenor.com/pt-BR/view/spfc-luciano-spfc-luciano-gol-gif-19046434)
+![descrição do GIF]([link GIF do Tenor](https://tenor.com/pt-BR/view/spfc-luciano-spfc-luciano-gol-gif-19046434)https://tenor.com/pt-BR/view/spfc-luciano-spfc-luciano-gol-gif-19046434)
